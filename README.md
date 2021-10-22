@@ -1,1 +1,1 @@
-I m stupid child <)
+I m stupid kid <)
