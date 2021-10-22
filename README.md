@@ -1,1 +1,3 @@
-I do what i want to do and you can't stop me ʕ•́ᴥ•̀ʔっ
+I like to make games & code stuff.
+
+Currently learning c# and python.
