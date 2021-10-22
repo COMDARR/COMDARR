@@ -1,3 +1,3 @@
-I like to make games & code stuff.
+I like to make differend stuff like plugins/scripts/games.
 
 Currently learning c# and python.
